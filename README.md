@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Sarayu Punyamurthy
+- 👀 I’m interested in science technology and stuff
+- 🌱 I’m currently learning digital marketing.
